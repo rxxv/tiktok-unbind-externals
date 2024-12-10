@@ -11,6 +11,6 @@
 
 ![Tiktok Unbind Externals Example](https://i.postimg.cc/4NGnrzsB/IMG-8912.png)
 
-price: 999$
+price: $1500 + $2000 session extractor tools via link no logins
 
 contact: [https://t.me/ryuna](https://t.me/ryuna)
